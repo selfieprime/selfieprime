@@ -1,4 +1,6 @@
-## olá campeão , seja bem vindo aos conteudos mais vips e valorosos da atualidade para acessar nossos conteudos ,clique no link e acesse nosso telegram agora !👋
+## Bem vindo!! Você encontrou o melhor grupinho de telegram🙈
+
+Aqui você encontra os conteúdos mais atualizados e desejados do momento CLICA NO LINK e vem pro grupinho free do telegram  conferir ❤️‍🔥
 
 <!--
 **selfieprime/selfieprime** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
