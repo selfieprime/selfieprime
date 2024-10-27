@@ -1,4 +1,4 @@
-## Bem vindo!! Você encontrou o melhor grupinho de telegram🙈
+https://t.me/+gB_rGrP2qlA2NTQx ## Bem vindo!! Você encontrou o melhor grupinho de telegram🙈
 
 Aqui você encontra os conteúdos mais atualizados e desejados do momento CLICA NO LINK e vem pro grupinho free do telegram  conferir ❤️‍🔥
 https://t.me/+gB_rGrP2qlA2NTQx
