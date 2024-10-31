@@ -1,7 +1,7 @@
-CLICA NO LINK E ENTRE NO GRUPO DAS MAIS BELAS https://t.me/+gB_rGrP2qlA2NTQx ## Bem vindo!! Você encontrou o melhor grupinho de telegram🙈
+CLICA NO LINK E ENTRE NO GRUPO DAS MAIS BELAS https://bit.ly/TOPCONTEUDOSVIP  ## Bem vindo!! Você encontrou o melhor grupinho de telegram🙈
 
 Aqui você encontra os conteúdos mais atualizados e desejados do momento CLICA NO LINK e vem pro grupinho free do telegram  conferir ❤️‍🔥
-https://t.me/+gB_rGrP2qlA2NTQx
+https://bit.ly/TOPCONTEUDOSVIP
 <!--
 **selfieprime/selfieprime** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
