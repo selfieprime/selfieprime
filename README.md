@@ -1,6 +1,7 @@
-CLICA NO LINK E ENTRE NO GRUPO DAS MAIS BELAS https://bit.ly/TOPCONTEUDOSVIP  ## Bem vindo!! Você encontrou o melhor grupinho de telegram🙈
+CLICA NO LINK E ENTRE NO GRUPO DAS MAIS BELAS 👉🏻👉🏻👉🏻 https://bit.ly/TOPCONTEUDOSVIP 👈🏻👈🏻👈🏻 ## Bem vindo!! Você encontrou o melhor GRUPINHO DE TELEGRAM DE SAFADEZAS TOTALMENTE EXPLICITAS 🙈
+Seu telegram pode está bloqueado para conteúdo adulto siga os passos do vídeo do youtube para desbloquear 👉🏻 https://www.youtube.com/watch?v=mIHwjlUHUTY
 
-Aqui você encontra os conteúdos mais atualizados e desejados do momento CLICA NO LINK e vem pro grupinho free do telegram  conferir ❤️‍🔥
+Aqui você encontra os conteúdos mais atualizados e desejados do momento CLICA NO LINK QUE ESTA EM AZUL e vem pro grupinho free do telegram  conferir ❤️‍🔥
 https://bit.ly/TOPCONTEUDOSVIP
 <!--
 **selfieprime/selfieprime** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
